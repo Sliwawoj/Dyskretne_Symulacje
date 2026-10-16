@@ -1,1 +1,3 @@
 # Dyskretne_Symulacje
+
+🤫
